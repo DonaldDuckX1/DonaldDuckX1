@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DonaldDuckX1
+- 👀 I’m interested in FiveM, Coding, Software Development
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate on Anything to do with website development, FiveM Development, Software Development, Just let me know.
+- 📫 How to reach me Discord: DonaldDuckX1
